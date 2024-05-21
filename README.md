@@ -8,5 +8,5 @@ Here are some interesting facts about me:
 - 🔭 I’m currently working on completing the BI Analyst Bootcamp as well as over 100+ hours of additional Udemy course material. 
 - 🌱 I’m currently eager to making a career change. 
 - 📫 How to reach me: antonella.kim@gmail.com
-- ⚡ Fun fact: I'm Korean born in Argentina with Spanish being my native language. 
+- ⚡ Fun fact: I'm ethnically Korean born in Argentina with Spanish being my native language. 
 
